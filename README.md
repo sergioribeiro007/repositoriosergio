@@ -7,3 +7,4 @@ Endereço:Curitiba / Praça:Rui Barbosa
 
 
 Modelos de Celulares
+Samsung
