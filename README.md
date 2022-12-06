@@ -13,11 +13,4 @@ Samsung
 
 
 Samsung
-Item statusDraft
-sergioribeiro007 opened 2 months ago
-Description
-sergioribeiro007
-2 hours ago (edited)
-Image
 
-Image
