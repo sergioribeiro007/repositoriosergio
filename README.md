@@ -13,6 +13,7 @@ SAMSUNG
 
 GARANTIA 1 ANO
 
+![Image](https://user-images.githubusercontent.com/114025479/207130799-9b82c74f-57f2-40b6-902c-4e9e773e8bac.png)
 
 MOTOROLA
 39 UNIDADES
